@@ -12,7 +12,7 @@ Welcome to Joey Yijie Wang's home on the Web.
 
 Introduction 
 ======
-I was graduated from Soochow University(Mainland China)(蘇州大學) majoring in Chinese Language and Literature. I will join Uniersity of California, Los Angeles as a M.A. in East Asian Studies student in 2023 Fall semester.
+I was graduated from Soochow University(Mainland China)(蘇州大學) majoring in Chinese Language and Literature. I will join University of California, Los Angeles as a M.A. in East Asian Studies student in 2023 Fall semester.
 
 I am interested in literature, material culture, memory studies and post-colonial theory. At present the area of my specialization is China. My undergraduate thesis for B.A. degree was focused on the relationships among objects, craftsmanship and memory in Ge Liang's(葛亮） novels. I am studying German and Japanese. 
   
